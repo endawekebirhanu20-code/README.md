@@ -1,4 +1,3 @@
-<Endaweke Birhanu GitHub Profile README -->
 
 <h1 align="center">Hi 👋, I'm Endaweke Birhanu</h1>
 ### 🌐 Connect With Me
